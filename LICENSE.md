@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with instant opensea sniper bot | whitelist-bypass + arbitrage-opportunities, the #1 opensea sniper bot. Includes whitelist-bypass and
 
 
 
